@@ -1,1 +1,0 @@
-# JeongHyeSoo.github.io
